@@ -2,8 +2,6 @@
 
 ## Link: https://www.youtube.com/watch?v=w4rG5GY9IlA
 
-Here's a polished, practical essay based on the talk:
-
 ---
 
 ## The Golden Ticket Isn't Gone — It Just Evolved
